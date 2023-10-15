@@ -1,5 +1,5 @@
 # yeamuah
-Hi, yes and G2G!
+Hi, previously in a newport beach bar. all around the world. yes and G2G!
 <p> 20 thousand years </p>
 <p> pears fell from the hill </p>
 <p> up above and high </p>
